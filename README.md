@@ -1,1 +1,1 @@
-hi zdarova privet
+pidorasi.
