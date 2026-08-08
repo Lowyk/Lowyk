@@ -1,2 +1,1 @@
-pidorasi.
-![pidorasi.](pidorasi.jpg)
+ааа дднет
